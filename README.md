@@ -1,4 +1,4 @@
-### Hi, 👋 Smriti here. Sophomore at NIT Hamirpur
+### Hi, 👋
 
 <!--
 Here are some ideas to get you started:
